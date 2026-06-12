@@ -1,3 +1,3 @@
 # DSA-Prep-Series 
-<br> Vaibhav
+<br> by Vaibhav
 
